@@ -40,6 +40,6 @@ Document daily progress for accountability and future reference
 🚀 Let's Connect!
 
 💬 Feel free to share feedback, suggestions, or just say hi! 😃  
-🔗 **LinkedIn**: [Rajan Kumar](www.linkedin.com/in/rajankumar-kush ) 
-🐦 **X**: [@RajanKr_kush](https://x.com/RajanKr_kush) 
+🔗 **LinkedIn**: [Rajan Kumar](www.linkedin.com/in/rajankumar-kush )  
+🐦 **X**: [@RajanKr_kush](https://x.com/RajanKr_kush)  
 Let's make these 100 days productive and fun! 🎉
